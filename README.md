@@ -1,11 +1,6 @@
-muslim, fullstack dev
+the best action is one you would want to die doing
 
-what else is there to say
-
-
-discord: [`0mhx`](https://discord.com/users/1091735539025203220)
-
-https://incognitotgt.me
+https://mashoorah.me
 
 
 (66:8)
