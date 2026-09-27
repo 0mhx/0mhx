@@ -1,7 +1,5 @@
-the best action is one you would want to die doing
-
-https://mashoorah.me
 
 
-(66:8)
-يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ تُوبُوٓا۟ إِلَى ٱللَّهِ تَوْبَةًۭ نَّصُوحًا
+ٱسْتَطَعْتُ ۚ وَمَا تَوْفِيقِىٓ إِلَّا بِٱللَّهِ ۚ عَلَيْهِ تَوَكَّلْتُ وَإِلَيْهِ أُنِيبُ
+
+my success is only from God, and to Him i trust and to Him i turn
